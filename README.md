@@ -1,2 +1,0 @@
-# QuickStudy
-Quick Study
